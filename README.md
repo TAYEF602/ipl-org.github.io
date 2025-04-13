@@ -2,7 +2,8 @@
 
 **🏆 Premier Esports League | 🌐 Global Competitive Gaming | 🚀 Next-Gen Tournaments**
 
-![IPL Banner](https://via.placeholder.com/1920x500/1a1a2e/ffffff?text=INVISIBLE+PRO+LEAGUE+%7C+ESPORTS+REDEFINED)
+![IPL Banner]![1650261682998](https://github.com/user-attachments/assets/426432e8-f77d-47b1-bba2-f727668ad610)
+
 
 ---
 
